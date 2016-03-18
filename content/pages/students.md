@@ -46,6 +46,7 @@ Shivani Patel is an undergraduate student majoring in Biological Genetics and mi
 ​Michelle Shade is a​​ Junior ​majoring in Comparative Literature and Sociology, minoring in Psychology with a focus on ​neurocognitive research.​ She intends to continue research in grad school and beyond.​
 
 ### Katie Torres, Undergraduate Student  
+Katie Torres is a Junior majoring in Social Psychology, intending to graduate in spring of 2017. She intends to continue her education in grad school to be a Personality analyst. 
 
 ### Raya Willoughby, Undergraduate Student  
 Raya is a Psychology major with a concentration in Neuroscience and plans to graduate in 2018. Her long term plans include earning her PhD in Psychology and ultimately going into the field of research. She hopes to combine her love for the field with her love for working with kids by specializing in Autism research.
